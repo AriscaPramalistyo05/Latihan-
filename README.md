@@ -1,0 +1,2 @@
+# Latihan-
+Berbagai macam percobaan
